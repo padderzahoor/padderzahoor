@@ -30,7 +30,7 @@ I’m a passionate educator, coder, and lifelong learner with a knack for mentor
 ---
 
 ## 📫 **Reach Me At:**  
-- 📧 Email: [your-email@example.com](mailto:zahoorpadder@gmail.com)  
+- 📧 Email: [Gmail](mailto:zahoorpadder@gmail.com)  
 - 🌐 LinkedIn: [linkedin.com/in/padderzahoor](https://linkedin.com/in/padderzahoor)  
 
 ---
